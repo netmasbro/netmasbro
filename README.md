@@ -1,4 +1,4 @@
-netmasbro sebagai soereohan Madjikan-ja  ✨ @afrahman23 & @habiebzain ✨
+netmasbro sebagai Oeretan-nja ✨ @afrahman23 & @habiebzain ✨
 
 <!---
 netmasbro/netmasbro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
